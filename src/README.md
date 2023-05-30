@@ -14,4 +14,4 @@ We will also provide practical tips and strategies for helping clients make effe
 
 By the end of this book, coaches will have a comprehensive understanding of decision-making and the tools they need to empower their clients to make effective choices that lead to success.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
