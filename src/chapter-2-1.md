@@ -1,5 +1,3 @@
-Definition of Decision-making
-=======================================================================
 
 Effective decision-making is a crucial skill for employees at all levels of an organization. As a coach, it's important to have a clear understanding of what decision-making is and how it works in order to help your clients make effective choices.
 

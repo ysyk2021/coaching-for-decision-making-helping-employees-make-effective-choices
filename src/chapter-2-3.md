@@ -1,5 +1,3 @@
-Common Myths about Decision-Making
-============================================================================
 
 Effective decision-making is a crucial skill for individuals and organizations alike. However, there are several myths surrounding the decision-making process that can hinder its effectiveness. In this chapter, we will explore some common myths about decision-making and provide strategies to overcome them.
 
@@ -35,5 +33,4 @@ Conclusion
 ----------
 
 By recognizing and overcoming these common myths about decision-making, individuals and organizations can make more effective choices. Data, rationality, emotions, collaboration, and risk management are all important factors to consider when making decisions. Encouraging a holistic approach to decision-making can lead to better outcomes for everyone involved.
-
 

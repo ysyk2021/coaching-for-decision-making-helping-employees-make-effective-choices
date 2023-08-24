@@ -1,5 +1,3 @@
-Chapter 9: Ethical Considerations in Coaching for Decision-Making
-=================================================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. As coaches, it is essential to consider the ethical implications of our coaching practices. This chapter explores the ethical considerations that coaches should keep in mind when coaching for decision-making.
 

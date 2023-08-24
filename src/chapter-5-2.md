@@ -1,5 +1,3 @@
-Strengthening Relationship-building and Communication Skills
-=====================================================================================================================================
 
 In this chapter, we will discuss the importance of relationship-building and communication skills in coaching for decision-making. We will also provide strategies for strengthening these skills to maximize the effectiveness of coaching.
 

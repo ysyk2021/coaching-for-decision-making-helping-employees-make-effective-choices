@@ -1,5 +1,3 @@
-Enhancing Performance and Productivity
-===============================================================================================================
 
 In the previous chapters, we have discussed various techniques for coaching employees to make effective decisions. In this chapter, we will focus on how coaching for decision-making can enhance performance and productivity in the workplace.
 

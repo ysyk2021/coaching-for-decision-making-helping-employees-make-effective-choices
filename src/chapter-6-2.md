@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-=================================================================================================================
 
 In order to evaluate the effectiveness of coaching for decision-making, it is important to use both qualitative and quantitative methods. Quantitative methods focus on numerical data, while qualitative methods provide insights into subjective experiences and perceptions.
 

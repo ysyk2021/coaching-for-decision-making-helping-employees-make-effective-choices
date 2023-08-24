@@ -1,5 +1,3 @@
-Exploring Cognitive Biases and Heuristics
-====================================================================================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. However, decision-making is a complex process that can be influenced by various cognitive biases and heuristics. In this chapter, we will explore the psychology of coaching for decision-making and how coaches can help employees overcome cognitive biases and heuristics.
 

@@ -1,5 +1,3 @@
-Balancing Individual and Organizational Interests
-====================================================================================================================
 
 Coaching for decision-making can provide numerous benefits to both individuals and organizations. However, there are ethical considerations that must be taken into account when coaching for decision-making. In this chapter, we will explore how to balance individual and organizational interests in coaching for decision-making.
 

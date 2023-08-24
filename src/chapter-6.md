@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Coaching for Decision-Making
-============================================================
 
 In this chapter, we will discuss how to measure success in coaching for decision-making. Evaluating the impact of coaching interventions is essential for understanding their effectiveness and making improvements.
 

@@ -1,5 +1,3 @@
-Chapter 4: Techniques for Coaching for Decision-Making
-======================================================
 
 Coaching for decision-making involves guiding employees through the process of making effective choices that align with their personal and organizational goals. To achieve this, coaches need to use techniques that help employees to develop their decision-making skills, identify opportunities for growth, and achieve their objectives. In this chapter, we will explore some of the techniques that coaches can use in their coaching for decision-making.
 

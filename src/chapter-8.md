@@ -1,5 +1,3 @@
-Chapter 8: Case Studies of Successful Coaching for Decision-Making
-==================================================================
 
 Coaching for decision-making can be a powerful tool to help individuals make effective choices. In this chapter, we will explore real-life examples of individuals who have successfully improved their decision-making with the help of coaching.
 

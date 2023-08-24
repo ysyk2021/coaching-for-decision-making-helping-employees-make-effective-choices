@@ -1,5 +1,3 @@
-Identifying Different Approaches to Decision-Making
-==============================================================================================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. To achieve this, coaches must understand the different approaches to decision-making. In this chapter, we will explore some of the different approaches to decision-making and how coaches can help employees apply them.
 

@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Coaching for Decision-Making
-===============================================================
 
 Coaching employees for decision-making can be a challenging process. In this chapter, we will discuss common obstacles to coaching for decision-making and strategies for overcoming them.
 

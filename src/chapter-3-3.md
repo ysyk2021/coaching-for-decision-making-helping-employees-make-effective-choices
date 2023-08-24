@@ -1,5 +1,3 @@
-Techniques for Developing Effective Decision-Making Skills
-=====================================================================================================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. To achieve this, coaches must help employees develop effective decision-making skills. In this chapter, we will explore some techniques for developing effective decision-making skills in coaching.
 

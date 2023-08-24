@@ -1,5 +1,3 @@
-Fostering Accountability and Responsibility
-===================================================================================================
 
 Coaching for decision-making involves supporting employees in making effective choices that align with their personal and organizational goals. To achieve this, coaches must use techniques that foster accountability and responsibility in employees. In this chapter, we will explore some of the techniques that coaches can use to promote accountability and responsibility in their coaching for decision-making.
 

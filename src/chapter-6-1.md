@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-=====================================================================================================================
 
 Coaching employees for decision-making is an ongoing process that requires continuous evaluation and improvement. In this chapter, we will discuss key performance indicators (KPIs) for measuring success in coaching for decision-making.
 

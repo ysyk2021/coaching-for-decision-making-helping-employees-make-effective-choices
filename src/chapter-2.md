@@ -1,5 +1,3 @@
-Chapter 2: Understanding Decision-Making
-========================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. To achieve this, coaches must understand the process of decision-making and the benefits of making effective decisions. In this chapter, we will explore the definition of decision-making, the benefits of effective decision-making efforts, and common myths about decision-making.
 

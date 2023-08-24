@@ -1,5 +1,3 @@
-Strategies for Overcoming Challenges
-=====================================================================================================
 
 While coaching for decision-making can be a powerful tool for improving employee performance and productivity, there are sometimes obstacles that can hinder its effectiveness. In this chapter, we will discuss strategies for overcoming common obstacles to coaching for decision-making.
 

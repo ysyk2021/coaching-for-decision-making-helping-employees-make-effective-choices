@@ -1,5 +1,3 @@
-Chapter 3: The Psychology of Coaching for Decision-Making
-=========================================================
 
 Coaching for decision-making involves guiding employees to make effective choices that align with their personal and organizational goals. However, decision-making is a complex process that can be influenced by various psychological factors. In this chapter, we will explore the psychology of coaching for decision-making and how coaches can help employees develop effective decision-making skills, identify different approaches to decision-making, and overcome cognitive biases and heuristics.
 

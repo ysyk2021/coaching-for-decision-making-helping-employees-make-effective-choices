@@ -1,5 +1,3 @@
-Common Obstacles to Coaching for Decision-Making
-=================================================================================================================
 
 Coaching for decision-making can provide numerous benefits to individuals and organizations. However, there are also potential obstacles that may prevent individuals from fully engaging in coaching. In this chapter, we will explore some common obstacles to coaching for decision-making and how to overcome them.
 

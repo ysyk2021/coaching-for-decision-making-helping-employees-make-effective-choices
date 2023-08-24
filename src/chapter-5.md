@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Results through Coaching for Decision-Making
-=======================================================================
 
 Coaching for decision-making can help employees make effective choices that align with their personal and organizational goals. In this chapter, we will explore how coaching for decision-making can maximize results in various areas.
 

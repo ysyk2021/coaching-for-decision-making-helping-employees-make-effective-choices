@@ -1,5 +1,3 @@
-Developing Action Plans and Strategies
-==============================================================================================
 
 In the previous chapter, we discussed various techniques for helping employees identify and evaluate their options when making decisions. In this chapter, we will focus on developing action plans and strategies to help employees implement their decisions effectively.
 

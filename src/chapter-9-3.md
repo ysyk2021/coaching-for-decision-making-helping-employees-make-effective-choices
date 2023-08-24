@@ -1,5 +1,3 @@
-Addressing Potential Risks and Consequences of Coaching
-==========================================================================================================================
 
 Coaching for decision-making can provide numerous benefits to individuals and organizations. However, there are ethical considerations that must be taken into account when engaging in coaching. In this chapter, we will explore some potential risks and consequences of coaching for decision-making and how to address them.
 

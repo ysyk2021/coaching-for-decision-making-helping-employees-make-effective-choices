@@ -1,5 +1,3 @@
-Providing Personalized Feedback and Support
-===================================================================================================
 
 Coaching for decision-making involves guiding employees through the process of making effective choices that align with their personal and organizational goals. To achieve this, coaches need to use techniques that provide personalized feedback and support to employees. In this chapter, we will explore some of the techniques that coaches can use to provide personalized feedback and support in their coaching for decision-making.
 

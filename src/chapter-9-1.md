@@ -1,5 +1,3 @@
-Understanding Ethical Guidelines and Standards
-=================================================================================================================
 
 As a coach, it is crucial to understand the ethical guidelines and standards that govern coaching practices. The International Coach Federation (ICF) has established a code of ethics that outlines the ethical principles and practices that coaches should follow. This chapter will provide an overview of these ethical guidelines and standards and their importance in coaching for decision-making.
 

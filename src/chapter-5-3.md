@@ -1,5 +1,3 @@
-Improving Risk Management and Strategic Planning
-=========================================================================================================================
 
 Coaching for decision-making can provide numerous benefits to individuals and organizations. In this chapter, we will explore how coaching for decision-making can help individuals improve their risk management and strategic planning skills, leading to better outcomes.
 
