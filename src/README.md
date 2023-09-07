@@ -14,3 +14,7 @@ We will also provide practical tips and strategies for helping clients make effe
 By the end of this book, coaches will have a comprehensive understanding of decision-making and the tools they need to empower their clients to make effective choices that lead to success.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
