@@ -1,5 +1,4 @@
-Chapter: Providing Personalized Feedback and Support
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of coaching for decision-making, the chapter on providing personalized feedback and support assumes a pivotal role. This chapter delves into the strategies, techniques, and insights necessary to empower employees to make effective choices by offering tailored feedback and unwavering support.
 

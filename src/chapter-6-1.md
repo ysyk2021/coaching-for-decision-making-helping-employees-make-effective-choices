@@ -1,5 +1,4 @@
-Chapter: Key Performance Indicators (KPIs) for Measuring Success
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of coaching for decision-making, the chapter on Key Performance Indicators (KPIs) assumes a critical role. This chapter explores the significance of defining and utilizing KPIs to assess the success of coaching efforts in helping employees make effective choices.
 

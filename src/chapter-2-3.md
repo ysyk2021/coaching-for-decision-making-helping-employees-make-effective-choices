@@ -1,5 +1,4 @@
-Chapter: Common Myths about Decision-Making
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Within the context of the book "Coaching for Decision Making: Helping Employees Make Effective Choices," the chapter titled "Common Myths about Decision-Making" aims to debunk misconceptions that often surround the decision-making process. This chapter is designed to enhance readers' understanding of decision-making by dispelling myths that can hinder effective coaching and inhibit employees from making optimal choices.
 

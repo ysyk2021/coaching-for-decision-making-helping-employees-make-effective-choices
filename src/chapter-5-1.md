@@ -1,5 +1,4 @@
-Chapter: Enhancing Performance and Productivity
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the context of the book "Coaching for Decision Making: Helping Employees Make Effective Choices," the chapter titled "Enhancing Performance and Productivity" explores the critical link between effective decision-making and improved individual and organizational performance. This chapter demonstrates how coaching can elevate decision-making skills to drive heightened productivity and contribute to overall success.
 

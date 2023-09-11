@@ -1,5 +1,4 @@
-Chapter: Definition of Decision-Making
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the context of the book "Coaching for Decision Making: Helping Employees Make Effective Choices," the chapter titled "Definition of Decision-Making" delves into the fundamental understanding of what decision-making entails. This chapter lays the groundwork for the readers to comprehend the intricate process of decision-making and its significance in the realm of coaching and employee development.
 

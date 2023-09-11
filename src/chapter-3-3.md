@@ -1,5 +1,4 @@
-Chapter: Techniques for Developing Effective Decision-Making Skills
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the context of the book "Coaching for Decision Making: Helping Employees Make Effective Choices," the chapter titled "Techniques for Developing Effective Decision-Making Skills" outlines a comprehensive set of strategies and methods that coaches can utilize to assist employees in enhancing their decision-making abilities. This chapter equips readers with practical techniques to guide individuals towards making well-informed and impactful choices.
 
